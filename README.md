@@ -7,7 +7,8 @@
 
 ![491005222_1768356307360763_3029380636804089038_n](https://github.com/user-attachments/assets/175ed694-f9e8-4298-abd5-7c21c69dc2ad)
 
-![491005222_1768356307360763_3029380636804089038_n](https://github.com/user-attachments/assets/288b5a4a-48de-4215-a10d-5b2d426e6efb)
+![491024291_705168278701842_7981843923861446820_n](https://github.com/user-attachments/assets/c6a036cb-9a8e-4e19-a5b7-1dd794277217)
+
 
    </td>
   </tr>
