@@ -1,4 +1,19 @@
 # AUTO_ETOE
+<table>
+  <tr>
+    <td>
+    
+![490274361_1201224068374338_7867526222317815375_n](https://github.com/user-attachments/assets/a0add7ec-132e-4c24-989c-dcabb0640572)
+
+
+    </td>
+    <td>
+![491005222_1768356307360763_3029380636804089038_n](https://github.com/user-attachments/assets/175ed694-f9e8-4298-abd5-7c21c69dc2ad)
+
+
+    </td>
+  </tr>
+</table>
 
 
 ## Telechargement
